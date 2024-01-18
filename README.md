@@ -1,0 +1,1 @@
+# VegolasovAA_12_kogorta_diplom2
